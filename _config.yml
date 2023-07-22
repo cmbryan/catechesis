@@ -20,7 +20,7 @@ timezone:
 
 title: Orthodox Catechesis # the main title
 
-tagline: for St Constantine\'s Orthodox Christian Parish in York, UK # it will display as the sub-title
+tagline: "for St Constantine's Orthodox Christian Parish in York, UK" # it will display as the sub-title
 
 description: >- # used by seo meta and the atom feed
   Notes and essays
