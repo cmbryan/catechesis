@@ -115,6 +115,9 @@ pwa:
 
 paginate: 10
 
+# show_drafts: true  # don't need to use jekyll serve --drafts
+# future: false
+
 # ------------ The following options are not recommended to be modified ------------------
 
 kramdown:
