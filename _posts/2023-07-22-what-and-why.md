@@ -1,6 +1,6 @@
 ---
 title: The What and Why of Catechesis
-date: 2022-07-23
+date: 2023-07-23
 categories: [Essays, Sunday Sessions]
 tags:
 ---
