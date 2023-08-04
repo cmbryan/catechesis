@@ -105,7 +105,7 @@ Nor should we think that the path of 'ordinary' Christians is different from the
 
 Nevertheless, we should come to the Orthodox way with joy and enthusiasm, for the sake of the goal!
 
-> *Therefore we also, since we are surrounded by so great a cloud of witnesses, let us lay aside every weight, and the sin which so easily ensnares us, and let us run with endurance the race that is set before us, looking unto Jesus, the author and finisher of our faith, who for the joy that was set before Him endured the cross, despising the shame, and has sat down at the right hand of the throne of God.* (Hebrews 12:1-2)
+> *Since we are surrounded by so great a cloud of witnesses, let us lay aside every burden and the sin which so easily entangles us, and run with endurance the race that is set before us. Let us keep our eyes on Jesus, the initiator and completer of faith, who, setting it against the joy which lay before him, endured the cross, disregarding its shame, and is seated at the right hand of the throne of God.* (Hebrews 12:1-2)
 
 [^heidelberg]: 1518 Heidelberg Disputation, Thesis 25. <https://ca.thegospelcoalition.org/article/martin-luther-sola-fide/>
 [^pelikan]: Interview with U.S. News & World Report, July 26, 1989. <https://harpers.org/2008/12/pelikan-on-tradition-and-traditionalism/>
