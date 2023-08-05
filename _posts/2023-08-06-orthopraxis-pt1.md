@@ -1,5 +1,5 @@
 ---
-title: "Orthopraxis: The How of catechesis"
+title: "Orthopraxis: The How of catechesis (part 1)"
 date: 2023-08-06
 categories: [Essays, Sunday Sessions]
 tags:
