@@ -27,3 +27,5 @@ This harmonization of our beliefs, thoughts, feelings and actions is a work of G
 > *complete your own salvation with fear and trembling, for it is God who is acting in you both to want and to work for approval.* (Philippians 2:12-13)
 
 This and many other examples should remind us that Orthodox faith is not something that we obtain, but instead a path that we follow. The goal is not to have the right answers to theological question, but to win the approval of God through the presence of Christ himself inside us. (Colossians 1:27)
+
+[^heidelberg]: 1518 Heidelberg Disputation, Thesis 25. <https://ca.thegospelcoalition.org/article/martin-luther-sola-fide/>
