@@ -14,11 +14,21 @@ In the last session we covered the 'what' and the 'why' of catechesis: this time
 
 In our information-heavy culture, we often spend a lot of time&mdash;too much time, perhaps&mdash;inside our heads. There's a constant demand on us to have an opinion about nearly everything, and to define ourselves by what we *think* about things. One reason why we don't talk about politics or religion in polite conversation is because they touch the core of who we have defined ourselves to be, the opinions that have become our identity.
 
+## *Sola fide*?
+
 This modern attitude is rooted in, and in part caused by, the Protestant Reformation. At the same time that the printing press caused an information revolution across Europe, Christian thinkers following Luther and Calvin came to the novel and extreme conclusion that individuals cannot *do* anything to effect their own salvation. 'He is not righteous who does much, but he who, without work, believes much in Christ.'[^heidelberg] As a result of the over-abundance of information and the disregard for actions or 'works', the goals of Western Christianity became restricted to simply having the right opinions about theology. The latin *credo* (I believe) came to mean something quite different than it did before. We should think of this as an idolatry of the intellect.
+
+## Pietism
 
 At the opposite extreme is another error called 'pietism', which is perhaps even more common today. This is an attitude that ignores doctrine and dogma (and often morality as well) while keeping a veneer of pious practices, such as lighting candles and making the sign of the cross. This approach to the Christian life is equally ineffective and pointless. It is an idolatry of culture and custom.
 
-Finally, there is a third error, one that is peculiar to our own time. It is often expressed with the sentiment that 'it doesn't matter what your beliefs are, as long as they are genuine and authentic'. It is true that honesty is the best place to start making spiritual progress. But this attitude confuses the origin with the destination. It's no good for the prodigal son to be honest about his situation if he's just going to keep on feeding pigs. This mistake is an idolatry of emotion or sentiment.
+## The 'pineapple pizza' heresy
+
+Finally, there is a third error, one that is peculiar to our own time. It is often expressed with the sentiment that 'it doesn't matter what your beliefs are, as long as they are genuine and authentic'. It's kind of like putting pineapple on pizza, according to this way of thinking: it might seem bizarre to some people, but who are we to judge?
+
+It is true that honesty is the best place to start making spiritual progress. But this attitude confuses the origin with the destination. It's no good for the prodigal son to be honest about his situation if he's just going to keep on feeding pigs. This mistake is an idolatry of emotion or sentiment.
+
+## Holiness and the Orthodox way
 
 What we need to cultivate for our salvation is right thinking, right feeling, *and* right action: Orthodoxy and Orthopraxy. It is in the process of bringing what we think, say, and do into harmony that we literally become more 'holy'&mdash;that is, more unified and whole, not divided and self-contradictory. The high regard we have for the saints should give us a clue that this is by no means an easy task, nor one that we can accomplish by our own strength.
 
@@ -26,6 +36,8 @@ This harmonization of our beliefs, thoughts, feelings and actions is a work of G
 
 > *complete your own salvation with fear and trembling, for it is God who is acting in you both to want and to work for approval.* (Philippians 2:12-13)
 
-This and many other examples should remind us that Orthodox faith is not something that we obtain, but instead a path that we follow. The goal is not to have the right answers to theological question, but to win the approval of God through the presence of Christ himself inside us. (Colossians 1:27)
+This and many other examples should remind us that Orthodox faith is not something that we obtain, but instead a path that we follow. The goal is not to have the right answers to theological question, but to win the approval of God through the presence of Christ himself inside us.
+
+> *This is the mystery which has been hidden down the ages and for generations, but has now been revealed to his saints. To them God has been pleased to make known the richness of the glory of this mystery among the nations, which is 'Christ in you, the hope of glory'.* (Colossians 1:26-27)
 
 [^heidelberg]: 1518 Heidelberg Disputation, Thesis 25. <https://ca.thegospelcoalition.org/article/martin-luther-sola-fide/>
