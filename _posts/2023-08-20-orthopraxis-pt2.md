@@ -5,7 +5,7 @@ categories: [Essays, Sunday Sessions]
 tags:
 ---
 
-(See {% post_url 2023-08-06-orthopraxy-pt1 %} for the first part of this section.)
+(See {% post_url 2023-08-06-orthopraxis-pt1 %} for the first part of this section.)
 
 The lives and teachings of the saints give us some specific practices to follow in the Orthodox way. You should use the following as a template to adapt to your personal needs and interests, following the guidance of a spiritual father and your own conscience.
 
