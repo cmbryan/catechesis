@@ -42,7 +42,7 @@ The most important prayers are short and simple, and you should try to memorise 
 > Without defilement you gave birth to God, the Word:  
 > True Theotokos, we magnify you.
 
-> **To God the Father**
+> **To God the Father**  
 > Our Father in heaven, hallowed be your name.  
 > Your Kingdom come, Your will be done on earth as it is in heaven.  
 > Give us this day our daily bread,  
@@ -67,7 +67,7 @@ In your private devotions you should say what is on your mind and heart, or simp
 
 A close second to the practise of daily prayer is reading: of the Scriptures in general, the New Testament in particular, and the Gospels in super-particular. Since most of us can't attend church services daily, we won't otherwise hear the lectionary, the sequence of readings that guides us through the Ecclesial year. And even though we can't receive the Eucharist every day, when we read the Gospels we are having a personal encounter with Christ in a similar (albeit lesser) way.
 
-You can find the daily readings here: https://yorkorthodox.org/wp/saints-readings/
+You can find the daily readings here: <https://yorkorthodox.org/wp/saints-readings>
 
 Second to the Scriptures are the many other spiritual writings of Orthodox saints and spiritual fathers and mothers. You may find that you resonate with a particular author and should follow your instincts in this regard with the blessing of your spiritual father, as this can be a great aid to your spiritual growth. But be cautious against elevating one particular voice to the exclusion of the general Orthodox consensus, and you should almost always avoid recent writings, as these haven't had time to be 'vetted' by the Church as a whole.
 
@@ -107,5 +107,5 @@ Don't make the mistake of thinking that patterns will get easier to change over 
 
 Lastly and more positively, even as a catechumen you should begin looking for every opportunity to practise these 'fruits' or virtues. Again, don't expect these to appear without a little bit of effort on your part, and don't be surprised if you don't notice much change (or any). But look for opportunities to perform a loving action, even if you aren't 'feeling it'. Remind yourself of the reasons you have to be joyful in daily life, and don't hide the truth even if it gets you into trouble. Practise self-control in ways that seem small and inconsequential. And the cumulative effect, with God's help, will benefit you when you come forward for baptism and/or chrismation, attracting His grace and working for your salvation.
 
-[^theophan]: St Theophan the Recluse http://orthodoxinfo.com/praxis/theoph_prayer.aspx  
-[^schaff]: Philip Schaff, History of the Christian Church, volume 3 § 75 The Civil and Religious Sunday https://ccel.org/ccel/schaff/hcc3/hcc3.iii.x.ii.html
+[^theophan]: St Theophan the Recluse <http://orthodoxinfo.com/praxis/theoph_prayer.aspx>  
+[^schaff]: Philip Schaff, History of the Christian Church, volume 3 § 75 The Civil and Religious Sunday <https://ccel.org/ccel/schaff/hcc3/hcc3.iii.x.ii.html>
