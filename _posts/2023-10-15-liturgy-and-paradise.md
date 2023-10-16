@@ -5,6 +5,11 @@ categories: [Essays, Sunday Sessions]
 tags:
 ---
 
+<audio controls>
+    <source src="/catechesis/assets/audio/20231015.mp3" type="audio/mpeg">
+</audio>
+<p></p>
+
 > *[Jesus] said, 'Listen. A sower went out to sow and, as he sowed, some seeds fell by the wayside and the birds came and ate them. Others fell on stony ground where they had little soil. They sprouted immediately because they had no depth of earth, but when the sun came up they were scorched; and since they had no root, they withered. Others fell among thorns, and the thorns grew up and choked them. Others fell into good soil and produced grain: some a hundred times over, and some sixty, and some thirty. Let those who have ears for listening, listen.'* (Matthew 13:3-9)
 
 Last time we saw that the pattern, or icon, of heaven and earth is the key that Scripture gives us to understand both physical and spiritual realities.
