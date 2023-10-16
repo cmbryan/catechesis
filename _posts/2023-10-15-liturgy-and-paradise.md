@@ -95,6 +95,7 @@ Of course there is a deeper unity of all Christians as the Body of Christ, and w
 But this distinction in particular is so important that it is reinforced in the architecture, vestments, and actions of the Liturgy.
 Our clergy serve in the altar, which is divided from the nave by the iconostasis and which is 'higher' in the spiritual topography.
 Why is there this division, and why do we not place every indiviual at the same 'level'?
+
 If the clergy remained on the altar and the doors remained shut, this would indeed be wrong.
 But as anyone can see, this is not the case.
 In all of our services there is a constant coming and going, and who (or what) is entering or exiting the altar is unually the thing that really matters at that moment.
@@ -115,31 +116,31 @@ Both go through the middle, or Royal, doors to highlight their importance---the 
 
 The Great Entrance is the moment when the offering of bread and the wine is 'revealed' through the North door, processed through the body of the Church with solemn prayers, and then through the Royal Doors onto the altar table.
 This is a prophetic statement about the humanity of Christ, who descended from heaven to become one of us, and, as one of us, is able to gather the earth in himself and offer it back to heaven.
-We who are in Christ are able to make this offering with Him as His body, and it is in the act of offering that the Church as the "body of Christ" moves from being a theoretical concept to a living reality that we experience, even as simple people in our humble parish.
-This transcendence is only made possible because the holy gifts have to cross the border into the altar. It is only that they, and we, can become divine by grace.
+We who are in Christ are able to make this offering with Him as His body, and it is in the act of offering that the Church as the 'body of Christ' moves from being a theoretical concept to a living reality that we experience, even as simple people in our humble parish.
+This transcendence is only made possible because the holy gifts cross the border into the altar, and the division is therefore necessary for our salvation. It is in that act of transcendence that they, and we, can become divine by grace.
 
 ### Holy Communion
 
 >*Jesus again called out in a loud voice, and he gave up the spirit. __Then the veil of the sanctuary was torn in two from top to bottom,__ and the earth quaked, and the rocks split apart. The tombs were opened and the bodies of many holy ones who had fallen asleep were raised. After his resurrection they came out of the tombs, entered the Holy City, and appeared to many.* (Matthew 27:50-53)
 
 This 'veil of the sanctuary' was the Temple equivalent of our iconostasis, that is, the separation of the altar from the congregation.
-It, however, did not have a passageway through the middle, until Jesus death and resurrection tore it in half.
-We still have this 'tear' today, and that is the Royal Doors.
+It did not, however, have a passageway through the middle, until Jesus' death and resurrection tore it in half.
+We still have this 'tear' today, which is the Royal Doors.
 We should remember this moment of the Gospel every time those doors are thrown open and the Deacon calls out 'With faith and the fear of God, draw near!'
 This is the moment of our union, the moment when His life enters our life and _becomes_ our life, when his body and blood are united with ours.
 This is the purpose of creation, the image of both Eden in the past and the New Jerusalem in the future, and the mystical revelation of the Church in the present.
 It is the axis around which our lives in the world must revolve, if we are to be faithful to Christ.
 
-Holy Communion is a mystery and shouldn't be spoken about too much. For our purposes the important thing is to highlight the union of heaven and earth which is what everything else in our Liturgy and Theology are preparing us to take part in.
+Holy Communion is a mystery and shouldn't be analyzed too much. For our purpose now, the important thing is to highlight the union of heaven and earth which is what everything else in our Liturgy and theology are preparing us to take part in.
 
 ## Conclusion: Law and Grace
 
 Finding our place in the Divine Liturgy, and then making everything in our lives one great 'liturgy', is what we mean by receiving 'grace', that is, participating in the life of God (2 Peter 1:4)
 This is the meaning behind Christ's prayer before his arrest and trial, 'let your will, not mine, be done.' (Luke 22:42)
-Too often, especially as catechumens, we are worried about doing the right things: crossing ourselves from right to left, listening to teachers on the internet, and figuring out whether it's allowed to use vegetable oil on Wednesday.
+Too often, especially as catechumens, we are worried about doing the right things: crossing ourselves from right to left, listening to teachers on the internet, and of course figuring out whether it's allowed to use vegetable oil on Wednesday!
 With humility and a childlike attitude, all these little worries are in fact commendable expressions of love, and no one should discourage them.
 But we must be sure not to miss the forest for the trees.
-Our life is communion with Christ in the Church and not in following Orthodox customs, even holy ones.
+Our life is communion with Christ in the Church and not following Orthodox customs, even holy ones.
 
 Let us offer our unworthy lives to Christ and with Christ, and in so doing receive Christ who is in himself the union of heaven and earth, being transformed into His likeness and partaking of Divinity through His grace. Amen.
 

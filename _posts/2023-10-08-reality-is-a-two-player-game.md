@@ -26,7 +26,7 @@ And just as in the actual creation, this pattern is revealed to us in the very f
 The rest of the story is nothing more than an unfolding of this pattern into the world that we inhabit today: night and day, earth and sea, and so on.
 In fact, the further we go into the details, the more dualities we find.
 But the big finale, in Chapter 2, is the 'splitting' of Adam to create Eve.
-This final act that fully reveals the nature of the contrasts that came before, as well as those that would come after.
+This final act fully reveals the nature of the contrasts that came before, as well as those that would come after.
 As St Paul would later write, 'This is a great mystery, but I speak concerning Christ and the church.' (Ephesians 5:32)
 We belong to the same pattern as the rest of creation, a pattern that reaches up to God himself.
 The image of heaven and earth is embedded into human nature.
