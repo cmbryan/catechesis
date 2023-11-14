@@ -9,7 +9,7 @@ tags: Christmas, fasting
 Christmas seems to bring out the best and the worst of people.
 We show our appreciation for other people with Amazon packages purchased on credit, and we make the effort to gather relations together only to be reminded of how dysfunctional those relationships can sometimes be.
 And yet the 'spirit of Christmas' is fundamentally Christian, reminding us that Christ makes his appearance in the darkest, coldest part of the year, and journeys with us through the winter and into the new life of Paschal Spring.
-That is not to say that the Gospel is a metaphor for the natural year, but rather that the seasons themselves are the metaphor for the work of Christ. (REF Psalm 46?)
+That is not to say that the Gospel is a metaphor for the natural year, but rather that the seasons themselves are a metaphor for the work of Christ.
 
 Contrary to the culture around us, Christmas is not the biggest holiday (or 'holy-day') of the year. That, of course, is Pascha.
 But the Incarnation of Christ is the necessary pre-cursor, taking second place as a 'winter Pascha'[^winter-pascha]
