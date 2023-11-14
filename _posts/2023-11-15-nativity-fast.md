@@ -11,8 +11,8 @@ We show our appreciation for other people with Amazon packages purchased on cred
 And yet the 'spirit of Christmas' is fundamentally Christian, reminding us that Christ makes his appearance in the darkest, coldest part of the year, and journeys with us through the winter and into the new life of Paschal Spring.
 That is not to say that the Gospel is a metaphor for the natural year, but rather that the seasons themselves are the metaphor for the work of Christ. (REF Psalm 46?)
 
-Contrary to the culture around us, Christmas is not the biggest holiday (or 'holy-day') of the year. That of course is Pascha.
-But the Incarnation of Christ is the necessary pre-cursor of it, taking second place as a 'winter Pascha'[^winter-pascha]
+Contrary to the culture around us, Christmas is not the biggest holiday (or 'holy-day') of the year. That, of course, is Pascha.
+But the Incarnation of Christ is the necessary pre-cursor, taking second place as a 'winter Pascha'[^winter-pascha]
 Like Pascha, this great feast is preceded by a lenten fast, though not as long or as strict as Great Lent.
 Each of the feasts has its own flavour or note, presenting us with different aspects of the Gospel, like light reflecting from a diamond.
 The flavour of the Nativity fast is less about penitence than expectancy, which is why it is known in the West as Advent.
